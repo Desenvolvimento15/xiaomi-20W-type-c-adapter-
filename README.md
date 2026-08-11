@@ -1,0 +1,1 @@
+# xiaomi-20W-type-c-adapter-
